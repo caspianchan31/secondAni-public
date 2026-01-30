@@ -135,8 +135,8 @@
 ## 💬 联系我们
 
 - 📧 **邮箱**: caspianchan3@gmail.com
-- 🐦 **Twitter**: [@secondani](https://twitter.com/secondani)
-- 💬 **Discord**: [加入社区](https://discord.gg/secondani)
+- 🐦 **Twitter**: 🚧 装修中
+- 💬 **Discord**: 🚧 装修中
 
 ---
 
